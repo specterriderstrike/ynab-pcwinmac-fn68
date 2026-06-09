@@ -1,4 +1,4 @@
-# 
+# Profesional YNAB complementos para Mac OS | Seguro YNAB complementos para PC Windows. Con planificación fiscal y conversión de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
